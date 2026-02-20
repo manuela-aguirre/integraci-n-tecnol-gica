@@ -1,1 +1,0 @@
-#integraci-n-tecnol-gica
